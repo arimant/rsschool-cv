@@ -1,1 +1,1 @@
-# rsschool-cv
+https://arimant.github.io/rsschool-cv/
